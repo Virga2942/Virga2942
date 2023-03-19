@@ -1,6 +1,6 @@
 - 👋 Hi, I’m: @Virga2942
-- 👀 I’m interested in: Programming, Drawing, Music, & pretty much anything else I find interesting
-- 🌱 I’m currently learning: Drawing & Music
+- 👀 I’m interested in: Programming, Drawing, Music, World-building, & pretty much anything else I find interesting
+- 🌱 I’m currently learning: nothing really 🤷‍♀️
 - 💞️ I’m looking to collaborate on: nothing really 🤷‍♀️
 - 📫 How to reach me: My discord is Virga#2942
 
